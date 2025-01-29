@@ -11,3 +11,4 @@ Hajime no Ippo is a manga series and anime adaptation about a high school studen
 
 <a href="https://www.youtube.com/watch?v=VV_Nd1qhJCc">Link to The Best Fights </a>
 
+Approved by Diana Montero
