@@ -7,7 +7,7 @@ Hajime no Ippo is a manga series and anime adaptation about a high school studen
 - Aired in 2000 to 2003
 + Author is George Morikawa
 
-![Anime](image.png)
+![Anime](https://m.media-amazon.com/images/M/MV5BN2UzMmM5NTQtYjUxYy00OWVjLTkwOWMtYzFhOGQxN2VlZjI5XkEyXkFqcGc@._V1_.jpg)
 
 <a href="https://www.youtube.com/watch?v=VV_Nd1qhJCc">Link to The Best Fights </a>
 
